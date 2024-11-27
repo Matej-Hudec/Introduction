@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Matej Hudec
+- 👀 I’m interested in game development and cybersecurity
+- 🏫 I'm currently studying at Technical University in Košice (TUKE) in Faculty of Electrical Engineering and Informatics program Cybersecurity
+- 🎓 I graduated from secondary vocational school Handlová department of computer network mechanics
+- 🌐 My official website ???
+- 💼 ???
+- 📫 How to reach me https://www.facebook.com/MattyHudec | https://m.me/MattyHudec | https://www.instagram.com/hudecmatty
+- 📧 How to email me ???
